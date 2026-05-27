@@ -121,14 +121,10 @@ The mission of Leo Writes & Ranks is to help South Africans understand how SEO, 
 
 Connect With Leo Zane Gouws
 
-LinkedIn
+LinkedIn https://www.linkedin.com/in/best-seo-copywriter-south-africa-leo-zane-gouws
 
-Medium
+Medium https://www.medium.com/@leozanegouwsbestseocopywriter
 
-Blogger
+Blogger https://leo-zane-gouws-seo-ai-youth-sa.blogspot.com/2026/05/south-africas-future-careers-crisis-is.html
 
-GitHub
-
-Google Search
-
-Leo Writes & Ranks
+Google Search: Leo Writes & Ranks 
